@@ -1,4 +1,4 @@
-# 🛑 SON DAKİKA: KingRoyal Lazkopat'ın Annesine Biniyor! 🐱🔥
+# KingRoyal Kingroyal Giriş Lazkopat'ın Annesine Biniyor! 🐱🔥
 
 > **Uyarı:** Bu içerik mizah amaçlıdır. Herhangi bir gerçek kişi veya kurumla ilgisi yoktur.
 
